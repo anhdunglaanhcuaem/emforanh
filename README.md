@@ -24,12 +24,12 @@ Gừng được xem là liều thuốc giảm đau và kháng viêm tự nhiên 
 
 Trên đây là những loại thảo dược trị đau nhức xương khớp cực kỳ hiệu quả lại rất dễ tìm, dễ sử dụng và an toàn, lành tính, không gây ra các tác dụng phụ. Vì thế, người bệnh có thể yên tâm sử dụng lâu dài để hiệu quả triệt để.
 
-THẢO DƯỢC TỐT CHO XƯƠNG KHỚP PHẠM VIỆT
+THÔNG TIN ĐỊA CHỈ
 
-THÔNG TIN LIÊN HỆ:
+CÔNG TY CÔNG VIÊN CÂY XANH BA MIỀN
 
-ĐỊA CHỈ: ĐỒNG QUẠ, TAM ĐẢO, VĨNH PHÚC
+ĐỊA CHỈ: KĐT Hoà Lạc, Quốc Oai, Hà Nội
 
-SỐ ĐIỆN THOẠI: 0988999999
+EMAIL: THAODUOCTOT@GMAIL.COM
 
-EMAIL: THAODUOCXANH@GMAIL.COM
+ĐIỆN THOẠI: 098665996
